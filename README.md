@@ -1,6 +1,6 @@
 Name: Xic_I.
 
-What i like: fuck hard, programming, playing and making another shit.
+What i like: programming, playing and making another shit.
 
 My gender: Relentless.
 
